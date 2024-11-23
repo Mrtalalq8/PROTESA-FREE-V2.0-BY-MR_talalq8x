@@ -3,7 +3,7 @@ PROTESA FREE V2.0 BY MR_talalq8x
 
 
 
-**Documentation for PROTESA FREE PROTECTOR V2.0 BY - HERMES**
+**Documentation for PROTESA FREE PROTECTOR V2.0 BY - MR_talalq8x**
 
 ![llllll](https://github.com/user-attachments/assets/744473c0-333e-4217-b2a3-e9ae21095696)
 
